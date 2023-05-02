@@ -1,1 +1,1 @@
-# I like to swim and play games. I also like dogs and hanging out with friends.
+# I like to swim and play games. I also like dogs and hanging out with friends, if it's in person or through texting.
